@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.roblox.com/games/12625784503/Saber-Showdown](https://www.roblox.com/games/12625784503/Saber-Showdown)
 
-- 📝 I regularly epxloits on [https://www.roblox.com/games/12625784503/Saber-Showdown](https://www.roblox.com/games/12625784503/Saber-Showdown)
+- 📝 I regularly epxloit on [https://www.roblox.com/games/12625784503/Saber-Showdown](https://www.roblox.com/games/12625784503/Saber-Showdown)
 
 - 💬 Ask me about **Saber Showdown**
 
