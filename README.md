@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm OP</h1>
+<h1 align="center">Hi 👋, I'm FireNut</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 
 - 🔭 I’m currently working on [Saber Showdown exploits](https://www.roblox.com/games/12625784503/Saber-Showdown)
